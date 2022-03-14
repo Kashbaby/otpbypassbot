@@ -1,5 +1,5 @@
 # otpbypassbot
-[**OTPBOT SUPREME**](https://t.me/otpbotsupreme) is an All-in-one OTPBYPASS BOT allowing you capture OTP and 2FA seamlessly. Spoof any bank, institution or company caller ID and trick your victims into giving up OTPs for bank logins, Credit cards, apple pay, Google pay, Cashapp etc.
+[**OTPBOT SUPREME**](https://t.me/otpbotsupreme_owner) is an All-in-one OTPBYPASS BOT allowing you capture OTP and 2FA seamlessly. Spoof any bank, institution or company caller ID and trick your victims into giving up OTPs for bank logins, Credit cards, apple pay, Google pay, Cashapp etc.
 
 
 OTPBOT SUPREME is arguably the best and this is why
@@ -192,4 +192,4 @@ OTPBOT SUPREME is arguably the best and this is why
 - :south_sudan:
 
 
-See bot in action -->  Join [**OTPBOT SUPREME**](https://t.me/otpbotsupreme) for free 10 minutes trial.
+See bot in action -->  Reach out to [**OTPBOT SUPREME**](https://t.me/otpbotsupreme_owner) to see the bot in action.
